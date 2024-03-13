@@ -8,6 +8,8 @@ https://github.com/orgs/Homebrew/discussions/5189
 #!gh-peppermint
 https://youtu.be/x7zO1SwKc-4?si=dORW4muDtxuIwCm6
 
+Charles Tracy Barney (January 27, 1851 – November 14, 1907) was an American banker who was the president of the Knickerbocker Trust Company, the collapse of which shortly before Barney's death sparked the Panic of 1907.
+
 be nice 2 girl, give '#' && re_nice
 Options:
 1) yes icecream

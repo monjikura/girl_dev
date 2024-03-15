@@ -1,6 +1,7 @@
 # girl_dev
 ( test.vendor https://www.facebook.com/nutonuto.coconut?mibextid=ZbWKwL )
 staging area for "girl", don't b.shy?.undress.rb
+https://ethereum.stackexchange.com/questions/161400/erc20-payment-mechanism-solution
 
 girl, those snowflakes are so beautiful ... coffee ? ... ??
 https://github.com/orgs/Homebrew/discussions/5189

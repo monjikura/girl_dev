@@ -21,6 +21,9 @@ be nice 2 girl, give '#' && re_nice
 Options:
 1) yes icecream
 2) no icecream
+[ 
+
+You agree to notify monjikura@gmail of any facts or circumstances of which you become aware that would make these representations inaccurate in any respect... ? ... ??
 
 please create action.workflow.yaml or whichever file system you like
 ...or just emulate in /local/./env/

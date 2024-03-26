@@ -6,6 +6,8 @@ SCGB1D2 - Although the gene has been reported to be on chromosome 10, this seque
 
 https://layerzero.network/
 
+bg# 1888 Shanghai ( Westinghouse 0000 )
+
 go get -sex
 flag provided but not defined: -sex
 usage: go get [-t] [-u] [-v] [build flags] [packages]https://www.facebook.com/nutonuto.coconut?mibextid=ZbWKwL )

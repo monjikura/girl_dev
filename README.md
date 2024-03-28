@@ -8,6 +8,9 @@ https://oeis.org/A007770
 https://layerzero.network/
 
 bg# 1888 Shanghai ( Westinghouse 0000 )
+Why #block?...??chai(n)?
+...dig do  
+https://youtu.be/cagoyF3WePo?si=ZSGEVuPBF0VZtlix
 
 go get -sex
 flag provided but not defined: -sex

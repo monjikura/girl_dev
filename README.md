@@ -1,7 +1,6 @@
 # girl_dev
 ( test.vendor ... tcpdump -sex 192.168.13.01
-
-https://www.kennedy24.com
+https://joinnow.live/a/qqEXTb?id=oZzkd4://www.kennedy24.com
 /tcpdump: invalid snaplen ex (must be >= 0 and <= 262144)
 
 SCGB1D2 - Although the gene has been reported to be on chromosome 10, this sequence appears to be from a cluster of genes on chromosome 11 that includes mammaglobin 2

@@ -11,7 +11,9 @@ https://layerzero.network/
 
 bg# 1888 Shanghai ( Westinghouse 0000 )
 Why #block?...??chai(n)?
-...dig do  
+...dig do 
+ 
+https://en.m.wikipedia.org/wiki/Gokishichid%C5%8D
 https://youtu.be/cagoyF3WePo?si=ZSGEVuPBF0VZtlix
 
 go get -sex

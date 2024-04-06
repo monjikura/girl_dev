@@ -5,6 +5,10 @@ https://joinnow.live/a/qqEXTb?id=oZzkd4://www.kennedy24.com
 
 SCGB1D2 - Although the gene has been reported to be on chromosome 10, this sequence appears to be from a cluster of genes on chromosome 11 that includes mammaglobin 2
 
+...
+Regulatory Compliance: Malaysia is in the process of implementing mandatory e-Invoicing regulations, set to commence in August 2024 for select businesses and gradually expanding to cover all tax-registered businesses by 2027.
+...
+
 https://oeis.org/A007770
 https://youtu.be/vNQXLhIcPrc?si=Av_iJARsAgTqw32R
 https://layerzero.network/

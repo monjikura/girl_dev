@@ -1,5 +1,7 @@
 # girl_dev ( https://en.m.wikipedia.org/wiki/Signature_defect ) of double L Shimizu functor ...
 
+https://en.m.wikipedia.org/wiki/Oei_Hui-lan
+
 test.vendor ... tcpdump -sex 192.168.13.01
 https://joinnow.live/a/qqEXTb?id=oZzkd4://www.kennedy24.com
 /tcpdump: invalid snaplen ex (must be >= 0 and <= 262144)

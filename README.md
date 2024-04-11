@@ -3,6 +3,8 @@
 xor vs nand 
 https://retrocomputing.stackexchange.com/questions/29805/what-is-the-purpose-of-this-add-with-carry-adc-instruction-x86/29812#29812
 
+https://oeis.org/A126853
+
 https://en.m.wikipedia.org/wiki/Oei_Hui-lan
 
 test.vendor ... tcpdump -sex 192.168.13.01

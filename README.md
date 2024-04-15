@@ -1,4 +1,6 @@
-# girl_dev ( https://en.m.wikipedia.org/wiki/Signature_defect ) of double L Shimizu functor ...
+# girl_dev ( https://en.m.wikipedia.org/wiki/Signature_defect ) of double L Shimizu functor ... 
+https://en.m.wikipedia.org/wiki/Freeport_Doctrine
+[ my gun ( stowed away ) is my bible ];
 
 https://oeis.org/A053253
 xor vs nand 

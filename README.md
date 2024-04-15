@@ -4,6 +4,9 @@ https://oeis.org/A053253
 xor vs nand 
 https://retrocomputing.stackexchange.com/questions/29805/what-is-the-purpose-of-this-add-with-carry-adc-instruction-x86/29812#29812
 
+[ tawfeed al-muntah tauheed ]
+https://en.m.wikipedia.org/wiki/Fuad_I_of_Egypt
+
 https://oeis.org/A126853
 https://casetext.com/case/ex-parte-peterson-4
 https://en.m.wikipedia.org/wiki/Oei_Hui-lan

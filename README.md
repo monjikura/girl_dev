@@ -9,6 +9,9 @@ https://retrocomputing.stackexchange.com/questions/29805/what-is-the-purpose-of-
 [ tawfeed al-muntah tauheed ]
 https://en.m.wikipedia.org/wiki/Fuad_I_of_Egypt
 
+https://en.m.wikipedia.org/wiki/Meredith_Gardner
+( girl pee standing - Australia 1920s )
+
 https://oeis.org/A126853
 https://casetext.com/case/ex-parte-peterson-4
 https://en.m.wikipedia.org/wiki/Oei_Hui-lan

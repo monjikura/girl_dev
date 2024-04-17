@@ -2,7 +2,9 @@
 https://en.m.wikipedia.org/wiki/Freeport_Doctrine
 [ my gun ( stowed away ) is my bible ];
 
-# Singapore Sling
+# Singapore Sling - 
+https://en.m.wikipedia.org/wiki/Janet_Sobel
+
 ( Singapore Hainan Chicken Rice - 
   12 March 1927 ... Kreta Ayer
   Warung Mobil ... 

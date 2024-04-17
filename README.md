@@ -2,6 +2,13 @@
 https://en.m.wikipedia.org/wiki/Freeport_Doctrine
 [ my gun ( stowed away ) is my bible ];
 
+# Singapore Sling
+( Singapore Hainan Chicken Rice - 
+  12 March 1927 ... Kreta Ayer
+  Warung Mobil ... 
+  Steered by Oliver Thompson, traffic     superintendent of the Singapore Traction Company, the bus headed towards the Kreta Ayer Police Station with the crowd following and attacking the vehicle. A violent confrontation erupted outside the police station, which led to the police firing shots. The clash resulted in six fatalities and injured 14 others )
+... Albanian BERAT
+   
 https://oeis.org/A053253
 xor vs nand 
 https://retrocomputing.stackexchange.com/questions/29805/what-is-the-purpose-of-this-add-with-carry-adc-instruction-x86/29812#29812

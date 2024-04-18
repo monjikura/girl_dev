@@ -79,3 +79,6 @@ Protocol & Forking creates "scarcity" but "not all 'scarcity' are created equal 
 
 exponent e
  (0x10001)
+
+
+https://github.com/rokzitko/tensor

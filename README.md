@@ -5,6 +5,8 @@ https://en.m.wikipedia.org/wiki/Freeport_Doctrine
 # Singapore Sling - 
 https://en.m.wikipedia.org/wiki/Janet_Sobel
 
+https://asignin.space/the-message/
+
 ( Singapore Hainan Chicken Rice - 
   12 March 1927 ... Kreta Ayer
   Warung Mobil ... 

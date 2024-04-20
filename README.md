@@ -5,6 +5,9 @@ https://en.m.wikipedia.org/wiki/Freeport_Doctrine
 # Singapore Sling - 
 https://en.m.wikipedia.org/wiki/Janet_Sobel
 
+ein Berliner 1927 
+(100 million dollars in German bonds, which Germany later proposed to pay back at the rate of thirty cents on the dollar)
+ 
 https://en.m.wikipedia.org/wiki/Norbert_Wiener
 
 https://asignin.space/the-message/

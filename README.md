@@ -5,6 +5,11 @@ https://en.m.wikipedia.org/wiki/Freeport_Doctrine
 # Singapore Sling - 
 https://en.m.wikipedia.org/wiki/Janet_Sobel
 
+Act 107 Malaysia ( pre-trial discovery )
+https://www.oyez.org/cases/2017/16-402
+#198640
+[ Chief Justice, John G Roberts ( FBI )]
+
 ein Berliner 1927 
 (100 million dollars in German bonds, which Germany later proposed to pay back at the rate of thirty cents on the dollar)
  

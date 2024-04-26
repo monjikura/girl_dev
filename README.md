@@ -5,6 +5,8 @@ https://en.m.wikipedia.org/wiki/Freeport_Doctrine
 start of decline of Islamic Ottoman
 ( https://en.m.wikipedia.org/wiki/  Uqba_ibn_Nafi )
 
+https://en.m.wikipedia.org/wiki/Six-Day_War_(1899)
+
 The next halving is set to take place in 2028 and the reward will be reduced to 1.5625 from 3.125 for a miner that successfully processes a block of transaction data. The average time to finish a block is around 10 minutes. There are expected to be 64 Bitcoin halvings before the 21 million cap is reached sometime around 2140, at which point halvings will cease and the blockchain will stop issuing new tokens.
 
 # Singapore Sling - 

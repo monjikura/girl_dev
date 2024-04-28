@@ -4,6 +4,8 @@ https://en.m.wikipedia.org/wiki/Junkers_F_13 ... sieg heil ... FELICIA is finall
 https://youtu.be/Ni8rkUW9rrs?si=f-8nwz2oIqQyVuGX
 ( semangat 46, man bai )
 
+https://en.m.wikipedia.org/wiki/1977_Kelantan_Emergency
+
 https://en.m.wikipedia.org/wiki/Ed_Koch
 
 https://en.m.wikipedia.org/wiki/Freeport_Doctrine

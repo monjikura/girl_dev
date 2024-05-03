@@ -2,6 +2,8 @@
 https://en.m.wikipedia.org/wiki/Junkers_F_13 ... sieg heil ... FELICIA is finally operational ( Milan 1935 )
 ( https://oeis.org/A079544 )
 
+https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
+
 https://youtu.be/Ni8rkUW9rrs?si=f-8nwz2oIqQyVuGX
 ( semangat 46, man bai )
 

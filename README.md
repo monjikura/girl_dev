@@ -4,6 +4,8 @@ https://en.m.wikipedia.org/wiki/Junkers_F_13 ... sieg heil ... FELICIA is finall
 
 https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
 
+https://en.m.wikipedia.org/wiki/George_Jessel_(jurist)
+
 https://youtu.be/Ni8rkUW9rrs?si=f-8nwz2oIqQyVuGX
 ( semangat 46, man bai )
 

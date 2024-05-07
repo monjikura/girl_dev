@@ -1,4 +1,4 @@
-# girl_dev ( https://en.m.wikipedia.org/wiki/Signature_defect ) of double L Shimizu functor ... 
+# girl_dev ( https://en.m.wikipedia.org/wiki/Signature_defect ) of double L Shimizu functor ... https://en.m.wikipedia.org/w/index.php?title=Hamburger_Bank&wprov=rarw1
 https://en.m.wikipedia.org/wiki/Junkers_F_13 ... sieg heil ... FELICIA is finally operational ( Milan 1935 )
 ( https://oeis.org/A079544 )
 

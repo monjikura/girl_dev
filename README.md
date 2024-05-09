@@ -6,6 +6,8 @@ https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
 
 https://en.m.wikipedia.org/wiki/George_Jessel_(jurist)
 
+female vagina plasma leptin level[53] ... Leptin augments secretion of gonadotropin hormones, which are essential for initiation and maintenance of normal reproductive function, by acting centrally at the hypothalamus to regulate gonadotropin-releasing hormone (GnRH) neuronal activity and secretion.
+
 #room 206 , Hotel Jesselton
 ...
 Lo served as a Member of Parliament for the new Malaysia from 1963 to 1978. In 1964 he was appointed Minister without portfolio to serve in the Federal Cabinet under the then Prime Minister, Tunku Abdul Rahman, the first Sabahan to hold this privilege. Then in late 1964, following a collapse in the Sabah coalition government due to tension between the 2 leading parties UPKO (United Pasok Momogon Kadazan Organisation) and USNO (United Sabah National Organisation), Lo was appointed Chief Minister of Sabah when the incumbent Chief Minister, Donald Stephens resigned

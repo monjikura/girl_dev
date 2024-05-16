@@ -6,6 +6,8 @@ https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
 
 https://en.m.wikipedia.org/wiki/George_Jessel_(jurist)
 
+authorities like the late Hugh Hickling, author of the 1963 Malaysian Constitution
+
 female vagina plasma leptin level[53] ... Leptin augments secretion of gonadotropin hormones, which are essential for initiation and maintenance of normal reproductive function, by acting centrally at the hypothalamus to regulate gonadotropin-releasing hormone (GnRH) neuronal activity and secretion.
 
 #room 206 , Hotel Jesselton

@@ -4,6 +4,11 @@ https://en.m.wikipedia.org/wiki/Junkers_F_13 ... sieg heil ... FELICIA is finall
 
 https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
 
+# Malaysia truly Asia ...
+63% of SMEs fear losing business if they reject corruption, report says
+
+https://www.freemalaysiatoday.com/category/nation/2024/05/20/63-of-smes-fear-losing-business-if-they-reject-corruption-report-says/
+
 https://en.m.wikipedia.org/wiki/George_Jessel_(jurist)
 
 authorities like the late Hugh Hickling, author of the 1963 Malaysian Constitution

@@ -4,6 +4,10 @@ https://en.m.wikipedia.org/wiki/Junkers_F_13 ... sieg heil ... FELICIA is finall
 
 https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
 
+...keluar sekejap, ofis boy tingkat 4
+Putrajaya ...
+https://en.m.wikipedia.org/wiki/1986_Sabah_state_election
+
 In a narration of Imam Sadiq (peace be upon him), it is said: "There are thirteen women with Hazrat Qaim (peace be upon him). (Athbat al-Hodah, vol. 7, p. 150)
 
 And in a narration from Imam Baqir (peace be upon him), it is said: "By God, three hundred and fifty men will come, among whom there are 50 women." (Bihar al-Anwar, vol. 52, p. 223)

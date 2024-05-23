@@ -12,6 +12,8 @@ https://en.m.wikipedia.org/wiki/1986_Sabah_state_election
 
 ...https://www.loyarburok.com/2013/01/24/silent-riot/
 
+...https://oeis.org/A006232
+
 ...The 1986 Sabah riots, also known as The Silent Riot, occurred between March and May in various locations around the state of Sabah, Malaysia. The riots centred mainly in the capital Kota Kinabalu, as well as in the towns of Tawau and Sandakan. On 12 March, seven plastic explosives were detonated in Kota Kinabalu.
 
 In a narration of Imam Sadiq (peace be upon him), it is said: "There are thirteen women with Hazrat Qaim (peace be upon him). (Athbat al-Hodah, vol. 7, p. 150)

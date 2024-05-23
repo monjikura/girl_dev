@@ -20,6 +20,11 @@ In a narration of Imam Sadiq (peace be upon him), it is said: "There are thirtee
 
 And in a narration from Imam Baqir (peace be upon him), it is said: "By God, three hundred and fifty men will come, among whom there are 50 women." (Bihar al-Anwar, vol. 52, p. 223)
 
+...[artin.gray]
+On his 72nd birthday in 1950, Falkenhausen received a $12,000 cheque from Chiang Kai-shek as a birthday gift and a personal note declaring him a "Friend of China".
+
+On Falkenhausen's 80th birthday in 1958, Wang Xiaoxi, the Nationalist Chinese ambassador to Belgium, awarded him the Grand Cordon of the Order of the Sacred Tripod for his contributions in defending China.
+
 # Malaysia truly Asia ...
 63% of SMEs fear losing business if they reject corruption, report says
 

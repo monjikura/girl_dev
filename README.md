@@ -8,6 +8,8 @@ https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
 Putrajaya ...
 https://en.m.wikipedia.org/wiki/1986_Sabah_state_election
 
+...The first bomb exploded in Kota Kinabalu on 25 May 1985. It happened just outside the hotel Lim Kit Siang was staying in during his time in Sabah. Parti Bersatu Sabah (PBS) had just won the election on 21 April 1985. Weeks before that, Dr Mahathir famously declared that Barisan Nasional (BN) would ‘Sink or Swim” with Parti Bersatu Rakayat Jelata Sabah (BERJAYA).
+
 ...The 1986 Sabah riots, also known as The Silent Riot, occurred between March and May in various locations around the state of Sabah, Malaysia. The riots centred mainly in the capital Kota Kinabalu, as well as in the towns of Tawau and Sandakan. On 12 March, seven plastic explosives were detonated in Kota Kinabalu.
 
 In a narration of Imam Sadiq (peace be upon him), it is said: "There are thirteen women with Hazrat Qaim (peace be upon him). (Athbat al-Hodah, vol. 7, p. 150)

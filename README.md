@@ -12,6 +12,9 @@ https://www.freemalaysiatoday.com/category/nation/2024/05/27/lhdn-told-to-refund
 Putrajaya ...
 https://en.m.wikipedia.org/wiki/1986_Sabah_state_election
 
+...[5/28, 19:28] Xk: Polya-Vinogradov
+[5/28, 19:30] Xk: Quadratic Gauss sums are closely connected with the theory of theta functions
+
 ...The first bomb exploded in Kota Kinabalu on 25 May 1985. It happened just outside the hotel Lim Kit Siang was staying in during his time in Sabah. Parti Bersatu Sabah (PBS) had just won the election on 21 April 1985. Weeks before that, Dr Mahathir famously declared that Barisan Nasional (BN) would ‘Sink or Swim” with Parti Bersatu Rakayat Jelata Sabah (BERJAYA).
 
 ...https://www.loyarburok.com/2013/01/24/silent-riot/

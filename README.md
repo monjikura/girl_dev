@@ -12,6 +12,8 @@ https://www.freemalaysiatoday.com/category/nation/2024/05/27/lhdn-told-to-refund
 Putrajaya ...
 https://en.m.wikipedia.org/wiki/1986_Sabah_state_election
 
+and conduct unbecoming an officer and a gentleman in violation of the Uniform Code of Military Justice (UCMJ) Articles 86, 92, 107, 121, and 133, respectively. The charges were forwarded to Major General Robert L. Smolen, Commander, Air Force District of Washington, for disposition
+
 ...[5/28, 19:28] Xk: Polya-Vinogradov
 [5/28, 19:30] Xk: Quadratic Gauss sums are closely connected with the theory of theta functions
 

@@ -8,6 +8,10 @@ LHDN told to refund company RM286mil for imposing additional tax, penalties
 
 https://www.freemalaysiatoday.com/category/nation/2024/05/27/lhdn-told-to-refund-company-rm286mil-for-imposing-additional-tax-penalties/
 
+...Sarawak seeking to halve hardcore poverty rate by 2026
+
+https://www.freemalaysiatoday.com/category/nation/2024/05/30/sarawak-seeking-to-halve-hardcore-poverty-rate-by-2026/
+
 ...keluar sekejap, ofis boy tingkat 4
 Putrajaya ...
 https://en.m.wikipedia.org/wiki/1986_Sabah_state_election

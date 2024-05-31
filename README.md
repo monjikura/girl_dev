@@ -2,6 +2,10 @@
 https://en.m.wikipedia.org/wiki/Junkers_F_13 ... sieg heil ... FELICIA is finally operational ( Milan 1935 )
 ( https://oeis.org/A079544 )
 
+Owners
+Guillemot family (14%)
+Tencent (9.99%) Hang LiPoh
+
 https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
 
 LHDN told to refund company RM286mil for imposing additional tax, penalties

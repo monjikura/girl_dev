@@ -5,6 +5,7 @@ https://en.m.wikipedia.org/wiki/Junkers_F_13 ... sieg heil ... FELICIA is finall
 Owners
 Guillemot family (14%)
 Tencent (9.99%) Hang LiPoh
+[ Hang Tuah bersama empat orang kawannya: Hang Jebat, Hang Kasturi, Hang Lekir dan Hang Lekiu ]
 
 https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
 

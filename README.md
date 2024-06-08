@@ -8,6 +8,8 @@ Guillemot family (14%)
 Tencent (9.99%) Hang LiPoh
 [ Hang Tuah bersama empat orang kawannya: Hang Jebat, Hang Kasturi, Hang Lekir dan Hang Lekiu ]
 
+Save the date for the 11th World Glaucoma Congress to be held June 25-28, 2025, in Honolulu, Hawaii, USA.
+
 https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
 
 LHDN told to refund company RM286mil for imposing additional tax, penalties

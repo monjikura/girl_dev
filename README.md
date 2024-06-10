@@ -3,6 +3,10 @@ https://en.m.wikipedia.org/wiki/Junkers_F_13 ... sieg heil ... FELICIA is finall
 ( https://oeis.org/A079544 )
 ...Qibya was to be an example for everyone... Anti-personnel obstacle breaching system ( also Malacca 1511 )
 
+padan muka lu
+...
+https://en.m.wikipedia.org/wiki/Kashmir_Princess
+
 Owners
 Guillemot family (14%)
 Tencent (9.99%) Hang LiPoh

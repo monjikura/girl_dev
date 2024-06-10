@@ -18,6 +18,11 @@ https://oeis.org/A000319
 
 https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
 
+... uss Aloha 1721
+Sang Nila Utama died in 1347 and his son, Sri Wikrama Wira succeeded him
+...
+hisap ayer mani saya
+
 LHDN told to refund company RM286mil for imposing additional tax, penalties
 
 https://www.freemalaysiatoday.com/category/nation/2024/05/27/lhdn-told-to-refund-company-rm286mil-for-imposing-additional-tax-penalties/

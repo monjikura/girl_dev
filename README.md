@@ -16,6 +16,9 @@ Save the date for the 11th World Glaucoma Congress to be held June 25-28, 2025, 
 
 https://oeis.org/A000319
 
+https://en.m.wikipedia.org/wiki/848_Naval_Air_Squadron#:~:text=The%20squadron%20was%20officially%20formed,October%201943%2C%20for%20the%20UK.
+( Operation ICE )
+
 https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
 
 ... uss Aloha 1721

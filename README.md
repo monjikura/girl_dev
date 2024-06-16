@@ -2,7 +2,7 @@
 ... DUN Sarawak June 18th, 2024
 
 from Scotland to S'wak ( Euro 2024 )
-...733 flor de la Mar
+...733 flor de la Mar 7736
 https://youtu.be/-YaHlR3jGFg?si=-4bBXwisEN96xIqm
 
 https://en.m.wikipedia.org/w/index.php?title=Hamburger_Bank&wprov=rarw1
@@ -30,6 +30,9 @@ https://en.m.wikipedia.org/wiki/848_Naval_Air_Squadron#:~:text=The%20squadron%20
 ( Operation ICE )
 
 https://en.m.wikipedia.org/wiki/Mohammad_Said_Yusof
+
+https://en.m.wikipedia.org/wiki/Du%27a_al-Faraj
+( Oh your "vagina" )
 
 ... uss Aloha 1721
 Sang Nila Utama died in 1347 and his son, Sri Wikrama Wira succeeded him

@@ -14,6 +14,10 @@ padan muka lu
 ...
 https://en.m.wikipedia.org/wiki/Kashmir_Princess
 
+cf. Surah 66:10
+( https://en.m.wikipedia.org/w/index.php?title=Maria_al-Qibtiyya&wprov=rarw1 )
+"black Maria"
+
 Owners
 Guillemot family (14%)
 Tencent (9.99%) Hang LiPoh

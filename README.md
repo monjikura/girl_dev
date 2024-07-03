@@ -1,5 +1,8 @@
 # girl_dev ( https://en.m.wikipedia.org/wiki/Signature_defect ) of double L Shimizu functor ...
 ... DUN Sarawak June 18th, 2024
+... Parlimen ( RUU akta audit 1957 )
+https://youtu.be/ydJ5P7mjCB0?si=05WCph0SPS6KPucS
+...lu mahu korek emas ke? saya punya MYR260.00 mana pergi ?
 
 from Scotland to S'wak ( Euro 2024 )
 ...733 flor de la Mar 7736

@@ -1,4 +1,13 @@
 # girl_dev ( https://en.m.wikipedia.org/wiki/Signature_defect ) of double L Shimizu functor ...
+
+abstract :
+
+{ 0134, 1185 }
+
+https://bibliotheca.limkitsiang.com/1983/10/24/bmf-scandal-let-the-chips-fall-where-they-should/
+
+$150.01 asas rahmah cf to October 2024
+
 ... DUN Sarawak June 18th, 2024
 ... Parlimen ( RUU akta audit 1957 )
 https://youtu.be/ydJ5P7mjCB0?si=05WCph0SPS6KPucS
